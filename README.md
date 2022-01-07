@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @StabilizerQ59
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...hairy beefy muscle daddys 
+- 🌱 I’m currently learning ...web integration
+- 💞️ I’m looking to collaborate on ...coding and development 
 - 📫 How to reach me ...pandorumliquidity@gmail.com 
 
 <!---
